@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dannymkushwa
 - 👀 I’m interested in ... Coding
-- 🌱 I’m currently learning ... Artificial Intelligence
+- 🌱 I’m currently learning ... B. tech Computer Science and Engineering
 - 💞️ I’m looking to collaborate on ... Coding
 - 📫 How to reach me ... +263785856001
 
